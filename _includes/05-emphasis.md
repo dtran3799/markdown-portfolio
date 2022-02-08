@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+In early 2014, IKEA furniture stores started selling **BLÅHAJ** *(sw. blue shark)*, a plush shark toy 
